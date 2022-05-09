@@ -1,6 +1,6 @@
 **Date:2022.05.08 Sunday**
 * 组员分享各自选题👉详情请查看：Miro-[Media Inspiration](https://miro.com/app/board/uXjVO6GBdjA=/?share_link_id=407657590556)
-* 确定选题库框架，方便素材储存👉详情请查看：石墨文档-[选题库](https://shimo.im/sheets/VMAPV8p875tG0zqg/MODOC/ 《选题库》)
+* 确定选题库框架，方便素材储存👉详情请查看：石墨文档-[选题库](https://shimo.im/sheets/VMAPV8p875tG0zqg/MODOC/)
 
 **To Do Next Week**
 * 1.积累选题和素材：调研各个平台top的博主2-3个，研究账号的运营情况，例如发文形式、内容、频率、反馈情况、有创意的运营策略...；2.规划各平台的主题栏目设置
