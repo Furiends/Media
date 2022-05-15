@@ -1,3 +1,13 @@
+## Date:2022.05.15 Sunday
+* 组员交流选题框架，扩充选题库的内容；挖掘选题创意，并进行相关素材的搜集
+* 分享建立选题库/素材库👉详情请查看：Miro-[Media Inspiration](https://miro.com/app/board/uXjVO6GBdjA=/?share_link_id=407657590556)
+* 确定了第一篇公众号推文内容：以团队简介为主，阐明成立动机、团队意义、行为目标等；确定公众号更新频率：暂定每周更新两篇（周二和周五）北京时间8pm发布
+
+**To Do Next Week**
+* 1.丰富选题，扩充选题素材库
+* 2.制定线上平台的年度品牌宣推规划，结合节庆活动，制定节点计划
+
+
 ## Date:2022.05.08 Sunday
 * 组员分享各自选题👉详情请查看：Miro-[Media Inspiration](https://miro.com/app/board/uXjVO6GBdjA=/?share_link_id=407657590556)
 * 确定选题库框架，方便素材储存👉详情请查看：石墨文档-[选题库](https://shimo.im/sheets/VMAPV8p875tG0zqg/MODOC/)
