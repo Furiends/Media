@@ -1,3 +1,13 @@
+## Date:2022.05.21 Sunday
+* 编制了branding的营销日历和事件列表，详细请查看👉石墨文档-[2022 Social Media Planning](https://shimo.im/tables/47kgJL86m0TOXVqV?table=B9gxTOzhglL&view=2okptSPNwuF#/
+* 对于选题库进行补充，详情请查看👉石墨文档-[选题库](https://shimo.im/sheets/VMAPV8p875tG0zqg/MODOC/)
+* 围绕公众号如何涨粉进行分享，详情请查看👉Miro-[Media Inspiration](https://miro.com/app/board/uXjVO6GBdjA=/?share_link_id=407657590556)
+
+**To Do Next Week**
+* 结合营销日历和事件，参考[营销日历](https://www.adguider.com/calendar)里国际节日/国内节日/纪念日等，完成 6、7、8、9、10月的营销事件列表，以及每周公众号推文的思路及重点（简要大纲）。【每周暂定推文两篇，目前每周选两个点即可】
+* 糖糖-6月；Natalia-7月；米喵-8月；Rae-5、9月； \zilisrikle-10月
+* 下周中拿到项目介绍文字初稿，由负责公众号进一步排版和文字后，预计周六前发出。
+
 ## Date:2022.05.15 Sunday
 * 组员交流选题框架，扩充选题库的内容；挖掘选题创意，并进行相关素材的搜集
 * 分享建立选题库/素材库👉详情请查看：Miro-[Media Inspiration](https://miro.com/app/board/uXjVO6GBdjA=/?share_link_id=407657590556)
