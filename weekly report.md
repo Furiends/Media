@@ -1,3 +1,14 @@
+## Date:2022.05.29 Sunday
+* 讨论了第一篇推文的行文结构，以及小红书和微博的内容风格。
+* 组织Furiends姐妹分享宠物萌照，作为后期的推文配图素材。
+* 讨论三个平台的内容排期，做好提前规划。
+
+**To Do Next Week**
+* 产出第一篇公众号文章/小红书推文/微博推文，预计发布时间6月4日/6月5日
+* 建立群相册 ✅
+* 建立小红书/公众号/微博的内容排期表
+* 继续完善石墨文档-[营销日历](https://www.adguider.com/calendar)
+
 ## Date:2022.05.21 Sunday
 * 编制了branding的营销日历和事件列表，详细请查看👉石墨文档-[2022 Social Media Planning](https://shimo.im/tables/47kgJL86m0TOXVqV?table=B9gxTOzhglL&view=2okptSPNwuF#/
 * 对于选题库进行补充，详情请查看👉石墨文档-[选题库](https://shimo.im/sheets/VMAPV8p875tG0zqg/MODOC/)
